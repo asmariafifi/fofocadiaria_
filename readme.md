@@ -2,8 +2,9 @@ Iran Feira (luva de pedreiro) briga com seu emrpressario Allan Jesus,e briga cor
 
 
 
-<img src="luva de pedreiro.jpeg" alt="luva de pedreiro " title="luva de pedreiro.jpeg" />
+[<img src="luva de pedreiro.jpeg" alt="luva de pedreiro " title="luva de pedreiro.jpeg" />
 
+](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2022/06/26/empresario-luva-de-pedreiro-ameacado-de-morte.htm)
 
 
 
